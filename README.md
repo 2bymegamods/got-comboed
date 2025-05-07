@@ -1,1 +1,1 @@
-# fishing-line-mod
+This mod adds a crazy omg knockback fishing rod.
