@@ -1,1 +1,1 @@
-This mod adds a crazy omg knockback fishing rod.
+This mod adds a crazy OP set of tools, arrows, & a bow & much more!
